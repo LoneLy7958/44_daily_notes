@@ -1,1 +1,2 @@
-# ex1-daily-notes
+# ex1-daily-notesฟห
+#lasg,kv,bkvlglkglghk.gbsgkls
